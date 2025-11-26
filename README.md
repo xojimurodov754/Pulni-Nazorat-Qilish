@@ -1,0 +1,1 @@
+# Pulni-Nazorat-Qilish
